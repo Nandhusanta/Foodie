@@ -1,1 +1,1 @@
-# Foodie Develope By HARI GOKUL SRINIVASAN
+# Foodie Developed By HARI GOKUL SRINIVASAN
